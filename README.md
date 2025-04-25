@@ -1,5 +1,5 @@
 # shama
 blha
 
-pes polytechnic
+pes polytechnick
 
